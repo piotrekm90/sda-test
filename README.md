@@ -2,3 +2,5 @@
 piotrek 
 sda
 *gdzie jest   
+hdsfsjf
+*bdjvndk
